@@ -35,6 +35,7 @@ Epi kliyan ka achte yo fasil sou app la.
 - Si tout itilizatè ta gen yon kont peyan tou pou aplikasyon an.
 
 ![RAS](https://github.com/user-attachments/assets/6a21b29a-5b7d-49f6-a185-e3563c9b163d)
+![RAS gift (2)](https://github.com/user-attachments/assets/fc348e50-35fa-49c5-ac54-a0e55f9dfdcf)
 
 
 
