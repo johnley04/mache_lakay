@@ -36,5 +36,5 @@ Epi kliyan ka achte yo fasil sou app la.
 
 ![RAS](https://github.com/user-attachments/assets/6a21b29a-5b7d-49f6-a185-e3563c9b163d)
 
-![RAS gift](https://github.com/user-attachments/assets/374baafe-1a4e-48fe-ac28-e44b3d3cbf34)
+
 
